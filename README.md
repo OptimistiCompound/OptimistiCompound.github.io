@@ -1,1 +1,0 @@
-# OptimistiCompound.github.io
